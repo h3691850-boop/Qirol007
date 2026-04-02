@@ -1,1 +1,1 @@
-# Qirol007
+Humoyun Bahromov
